@@ -1,6 +1,6 @@
-# 𝐎𝐠𝐥ą𝐝𝐚𝐣] Frendo (2025) 𝐜𝐚ł𝐲 po Polsku za Darmo
+## 𝐎𝐠𝐥ą𝐝𝐚𝐣] Frendo (2025) 𝐜𝐚ł𝐲 po Polsku za Darmo
 
-#### .github
+### .github
 
 Oglądaj Frendo (2025) cda cały Fil𝐦 za darmo - Frendo Fil𝐦 po polsku, Frendo caly Fil𝐦 cda. Oglądaj Fil Frendo . Gdzie można oglądać Frendo Fily za Darmo
 
